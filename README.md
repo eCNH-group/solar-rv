@@ -13,3 +13,27 @@ https://ecnh50.base44.app/solarrv
 
 
 solar+rv 2025
+
+
+
+# Andromeda 1 eCNH ≈ 0.1353-0.1463 USDT ≈  1 CNH,
+
+earth & Global Humanity Builds and Shares eCNH Together.
+
+Distributed Stablecoin eCNH CA: 
+
+7GQnqthWKa5v2GqXYWhmgWZY5mCRrniwK3Xuinm9GKw5u
+
+
+eCNH-USD pool,
+
+https://www.orca.so/pools/BHf1yCvj6qh2E1y2JLrjesP7RRC8XjBN3FyHeq45LnBZ
+
+https://www.orca.so/pools/EoEjy16d4vkejxF5VueDhAV8kCTHe2Mz1JUEWuZojamy
+
+https://www.orca.so/pools/4RdJnPy3nb821SqZdJZmvD4aixCVsjzcbhiLL32iTuRS
+
+https://app.meteora.ag/dlmm/5X1XqymjmPTyCQRursrzdCJx4jTJHqgqQ6UrxwTRqFZt
+
+https://app.uniswap.org/explore/tokens/solana/7GQnqthWKa5v2GqXYWhmgWZY5mCRrniwK3Xuinm9GKw5
+
