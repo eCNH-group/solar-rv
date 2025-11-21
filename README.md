@@ -16,7 +16,7 @@ solar+rv 2025
 
 
 
-# Andromeda 1 eCNH ≈ 0.1353-0.1463 USDT ≈  1 CNH,
+# Andromeda 1 eCNH ≈ 0.1353-0.1463 USD ≈  1 CNH,
 
 earth & Global Humanity Builds and Shares eCNH Together.
 
